@@ -153,5 +153,6 @@ DONE By:
 Gatjaut Wicteat Riek
 agtjuatriek@gmail.com
 
+for collaboration please reach me with above email
 
 

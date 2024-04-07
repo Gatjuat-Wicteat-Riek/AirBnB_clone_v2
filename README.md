@@ -153,6 +153,6 @@ DONE By:
 Gatjaut Wicteat Riek
 agtjuatriek@gmail.com
 
-for collaboration please reach me with above email
+for collaboration please reach me with above email and feel free to chat with me.
 
 
